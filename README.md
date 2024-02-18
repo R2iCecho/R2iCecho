@@ -2,7 +2,7 @@
 - 👀 I’m interested in make some funny things
 - 🌱 I’m currently learning ■■■■
 - 💞️ I’m looking to collaborate on ■■■
-- 📫 How to reach me ■■■■■■■■■■■■■■
+- 📫 How to reach me slsda@foxmail.com
 - 😄 Pronouns: ■■■■■
 - ⚡ Fun fact: ■■■
 
